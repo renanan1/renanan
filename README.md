@@ -1,4 +1,4 @@
-![imagealt](https://files.catbox.moe/g31zks.jpg)
+![imagealt](https://files.catbox.moe/fts61p.png)
 
 " 𝘔𝘢𝘺𝘣𝘦 𝘪𝘧 𝘪 𝘧𝘶𝘤𝘬𝘦𝘥 𝘺𝘰𝘶 𝘣𝘦𝘵𝘵𝘦𝘳 𝘺𝘰𝘶´𝘥 𝘭𝘦𝘵 𝘮𝘦 𝘸𝘦𝘢𝘳 your 𝘴𝘸𝘦𝘢𝘵𝘦𝘳 "![imagealt](https://files.catbox.moe/quwnwx.webp)
 
